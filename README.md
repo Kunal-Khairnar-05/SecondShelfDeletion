@@ -1,0 +1,2 @@
+*Second Shelf Deletion Policy*
+---
